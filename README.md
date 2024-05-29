@@ -3,7 +3,7 @@
 - 🌱 I’m currently full stack developper with 2 years of experience. Worked for innovative startups, small entreprise products, and formakt-bac agencie. Familiar with both remote, and in-office roles.
  Always seeking to take ownership of the project and deliver faster than expected. Comfortable for web, mobile , and API development.
   
-- 📫 How to reach me this is my phone number 25401047 abd this is my email:younes10sillimi@gmail.com
+- 📫 Contact me: phone number 25401047 and this is my Email:younes10sillimi@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
